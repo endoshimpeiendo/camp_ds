@@ -117,7 +117,9 @@
 - [ ] 6/9 昼　どこかで適宜　ファミレスも悪くない
 
 # 音楽
+- The Band "Northern Cross ..."
 
+- Neil Young "On the Beach"
 
 
 # やりたいこと
